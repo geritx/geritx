@@ -1,6 +1,8 @@
 <p align="center">
-  <img width="700" height="400" alt="2025_11_22_0ia_Kleki" src="https://github.com/user-attachments/assets/58d4aa25-77cb-4e1a-8030-23ee030b7343" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img width="700" height="500" alt="2025_12_01_0ts_Kleki" src="https://github.com/user-attachments/assets/ebdcdd21-2e15-4e20-bc11-281789c1cde5" />
  </p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-c + h  🍅 w 2 i
+𝚌 + 𝚑
+ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="120" height="120" alt="2025_12_01_0ul_Kleki (1)" src="https://github.com/user-attachments/assets/3aa07c62-0d9b-4179-b7e6-09f7c39f2cfc" />
+ ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ𝚠 𝟸 𝚒
 </p>
